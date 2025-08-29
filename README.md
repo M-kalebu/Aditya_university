@@ -1,1 +1,1 @@
-# Aditya_university
+# AdityaUniversity-2024
